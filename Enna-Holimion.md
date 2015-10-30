@@ -1,5 +1,5 @@
 Wood Elf Warlock
-Patron: Acheuadi - The spirit of sunset on the water
+Patron: Acheuadi - The Spirit of sunset on the water
 
 I have received messages and visions from a Spirit called Acheuadi. I found that my bond with her allowed to gain incredible magical powers, and because I know that she has given this to me, it is my goal to be the cause of Acheuadi's resurgance into the world. Every time I look into my shard of glass, or out into the open water at sunset, I wait for answers to questions I don't even know yet. I look for visions in the water, whether they be past, present, or future. They are always in pieces, and almost never make complete sense, but always lead me to something else of greater meaning.
 
