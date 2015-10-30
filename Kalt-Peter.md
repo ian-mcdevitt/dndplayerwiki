@@ -1,4 +1,4 @@
-We found Kalt Peter "locked" in a temple, with the implication that the Spirits had put them there.
+We found Kalt Peter "locked" in a temple, with the implication that the Spirits had put him there.
 
 He is a white human of average height with no hair and blue eyes. He dresses in white robes.
 
