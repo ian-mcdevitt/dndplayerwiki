@@ -2,3 +2,4 @@
 [[NPCs]]
 [[World]]
 [[Quests]]
+[[Enna's Journal]]
