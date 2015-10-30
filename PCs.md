@@ -1,3 +1,3 @@
-[[Enna]]
-[[Oz]]
-[[Praetus]]
+[[Enna Holimion]]
+[[Oz Greenbottle]]
+[[Praetus Dawngreeter]]
