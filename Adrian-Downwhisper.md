@@ -1,0 +1,1 @@
+New cleric of Lathander (thanks to Praetus)
