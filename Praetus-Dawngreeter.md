@@ -1,1 +1,1 @@
-prays and shit
+Prays and stuff.
