@@ -2,7 +2,7 @@ We found Kalt Peter "locked" in a temple, with the implication that the Spirits 
 
 He is a white human of average height with no hair and blue eyes. He dresses in white robes.
 
-Oh, and he screams. With his mind. Every time he attempts to do so, he causes harm to everything and eveyone around him.
+Oh, and he screams. With his mind. Every time he attempts to speak, he causes harm to everything and eveyone around him.
 
 Cure wounds doesn't affect him, nor does does he have a pulse or a trachea.
 
