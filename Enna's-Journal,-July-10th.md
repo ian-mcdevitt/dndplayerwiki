@@ -21,6 +21,7 @@ We at one point stumble across a room that has 6 tablets in it. Upon reading the
 * Akimeito
 * Rarharikle
 * Uire Nuir
+
 One of the tablets has a piece missing from it, which we later find at the Evenbrook tavern. 
 At the same time we find the tablet piece, we get some bidniz done:
 	Oz started building a bridge (and by building asked Frostmantle, a town carpenter)
