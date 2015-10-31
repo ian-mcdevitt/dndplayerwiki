@@ -1,4 +1,4 @@
-*Physical and ephemeral representations of concepts.*
+*Physical and ethereal representations of concepts.*
 
 [[Acheuadi]]
 
