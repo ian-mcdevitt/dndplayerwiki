@@ -1,4 +1,3 @@
-### Spirits:
 * [[Nysmund Amar]]
 * [[Rushieri]]
 * [[Turcerbelon]]
