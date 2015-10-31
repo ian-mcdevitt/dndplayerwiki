@@ -2,11 +2,11 @@
 
 [[Acheuadi]]
 
-* [[Nysmund Amar]]
-* [[Rushieri]]
-* [[Turcerbelon]]
-* [[Akimeito]]
-* [[Rarharikle]]
-* [[Uire Nuir]]
+[[Nysmund Amar]]
+[[Rushieri]]
+[[Turcerbelon]]
+[[Akimeito]]
+[[Rarharikle]]
+[[Uire Nuir]]
 
 [[Zari]]
