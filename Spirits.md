@@ -1,4 +1,4 @@
-*A highly refined substance or fluid thought to govern vital phenomena.*
+*Physical and ephemeral representations of concepts.*
 
 [[Acheuadi]]
 
