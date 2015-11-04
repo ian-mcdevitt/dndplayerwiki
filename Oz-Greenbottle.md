@@ -1,1 +1,1 @@
-Likes green bottles and stuff
+Is a cool guy
