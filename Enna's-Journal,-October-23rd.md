@@ -15,7 +15,7 @@ We find KP in his room, bandaging a wounded arm. Praetus lays on hands. KP point
 
 Enna looks around. Copies notebooks litter the floor. Complicated arcane symbols and some sort of hand motion arcaney-thing catches her interest. She asks KP if she can look at it later. He shrugs. Oz bags the grell parts (we determine. They all rush to Praetus's morning sermon.
 
-Praetus gives Adrian (his cleric) to give to the leader of Titanrock with the caravan, which is departing today.
+Oz gives Adrian (Praetus' cleric) 5 gold to give to the leader of Titanrock with the caravan, which is departing today.
 
 Oz is checking to see is Jim is home. Nope. Oz plops the grell insides in front of them and ask if they are aware of what happened. They are ignorant. They kinda sorta recognize it's a grell from Jim's book. Oz tells them about last night and this morning is KP's room. Oz sits in the corner looking at the book.
 Prietro Daybrooke and Thomas Riverbeard (the scribes) do an identify ritual.
