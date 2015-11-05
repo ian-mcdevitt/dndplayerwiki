@@ -1,4 +1,4 @@
 [[Enna Holimion]]
 [[Oz Greenbottle]]
 [[Praetus Dawngreeter]]
-[[Keyleth]]
+[[Keyleth Amastacia]]
