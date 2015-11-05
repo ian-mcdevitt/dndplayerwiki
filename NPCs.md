@@ -18,7 +18,7 @@
 * [[Moltencore|Families: Moltencore]]
 * [[Downwhisper|Families: Downwhisper]]
 * [[Snowlight|Families: Snowlight]]
-* [[Spiderbash|Families:Spiderbash]]
+* [[Spiderbash|Families: Spiderbash]]
 
 ### Refugees:
 * Guards:
