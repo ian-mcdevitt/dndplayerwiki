@@ -4,3 +4,4 @@
 [[September 5th|Enna's Journal, September 5th]]
 [[October 9th|Enna's Journal, October 9th]]
 [[October 23rd|Enna's Journal, October 23rd]]
+[[November 4th|Enna's Journal, November 4th]]
