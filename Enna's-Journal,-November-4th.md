@@ -4,7 +4,7 @@ These are pending problems:
 Dragon is flying back north, with a kidnapped member of the town.
 We have 8 days until the next werewolf attack.
 
-Peter Spiderbash approaches them, saying that was his daughter that was taken away. We assure him and her younger brother (Justin) wants to help. When the family first came to Evenbrook, as they were building their home, the older brother killed a large trap door spider -- hence their name.
+Peter Spiderbash approaches them, saying that was his daughter that was taken away. We assure him and her younger brother (Justin) wants to help. When the family first came to Evenbrook, as they were building their home, the older brother (Timothy) killed a large trap door spider -- hence their name.
 
 We take inventory of everyone, and meet briefly with the clergy. Hocor is still no where to be found. When asked, Telsa looks like she's hiding something. We decide to discuss what our next move is. Some of the town's people want to stay and hear what has to be said; they rest will be filled in in the morning.
 
