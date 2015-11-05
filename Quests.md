@@ -1,6 +1,6 @@
 [[The Gnoll Temple]]
 [[Kalt Peter and the Spirits]]
 [[Daybrook Werewolf Attacks]]
-[[The Burning Bridge/Weasel Druid/Bronzeleaf Garden]]
+[[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]]
 [[The New Caravan]]
 [[The Crazed Bronze Dragon]]
