@@ -1,4 +1,4 @@
 [[Peter Spiderbash]]
-[[Tim Spiderbash]]
+[[Timothy Spiderbash]]
 [[Lana Spiderbash]]
 [[Justin Spiderbash]]
