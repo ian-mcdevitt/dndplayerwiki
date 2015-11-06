@@ -1,1 +1,1 @@
-Is a cool guy
+[[Name:]] Osborn "Oz" Greenbottle
