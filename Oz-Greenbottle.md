@@ -1,1 +1,1 @@
-[[Name:]] Osborn "Oz" Greenbottle
+**Name:** Osborn "Oz" Greenbottle
