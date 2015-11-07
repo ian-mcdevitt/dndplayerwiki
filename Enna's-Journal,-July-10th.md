@@ -1,6 +1,5 @@
-First sessions:
-
 *8 years since the Valerian War*
+
 Acheuadi sent Enna a vision of the new continent, but needed a way to get there.
 Oz was imprisoned on a ship traveling to a new area for arena fighting, along with 20 others. Praetus wanted to liberate the slaves.
 This is where the three of them met. They commandeered the ship and set sail to the new continent.
