@@ -1,8 +1,6 @@
-August 28th, 2015
-
 We hop on the boat, across the lake. Sleep. We ask him again his name and where he is from now that he is calmer. He starts to carve symbols into a tree. Oz finds that comprehend languages reveals to be his name. After seeing a worked up, excited Praetus, he silences himself again. Seems a little PTSD, a reaction. His white clothes change to a white robe, slowly, over the course of the trip back.
-We ask him what he remembers if anything. He writes out, in symbols, Utureshk
-Utureshk, as far as Enna knows, has a link with the “Living Gate.” Has no idea what that is. 
+We ask him what he remembers if anything. He writes out, in symbols, Utureshk.
+Utureshk, as far as I know, has a link with the “Living Gate" but I have no idea what that even is.
 
 Peter's abilities are similar to mind flayers. Is Peter an experiment? Is something residing in him?
 
