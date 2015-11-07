@@ -1,11 +1,9 @@
 *8 years since the Valerian War*
 
-Acheuadi sent Enna a vision of the new continent, but needed a way to get there.
-Oz was imprisoned on a ship traveling to a new area for arena fighting, along with 20 others. Praetus wanted to liberate the slaves.
+Acheuadi sent me a vision of the new continent, but needed a way to get there.
+Oz was imprisoned on a ship traveling to a new area for arena fighting, along with 20 others. And Praetus wanted to liberate the slaves. This is where we met and we three commandeered the ship.
 
-This is where the three of them met. They commandeered the ship and set sail to the new continent.
-
-While on the ship, sahaugin (merfolk) attacked them. Both Oz and Praetus thought it would be a good idea to swim with armor on. It wasn't. Needless to say, the three of them fended the merfolk off.
+While on the ship, sahaugin (merfolk) attacked us. Both Oz and Praetus thought it would be a good idea to swim with armor on. It wasn't. Needless to say, We fended the merfolk off.
 
 After finding the coastline, they drifted along until they found evidence of a settlement. 
 
@@ -37,7 +35,7 @@ At the same time we find the tablet piece, we get some bidniz done:
 * Oz started building a bridge (and by building asked Frostmantle, a town carpenter)
 * Ideas about starting a trade route with other towns
 
-The three killed a fang of Yeenoghu (with the gnolls back at the temple). The gnolls worship a very evil God, Yeenoghu, who likes killing things... this is why all the gnolls had to die. They tried to make nice, tried talking to them, they really did. They didn't listen. So they had to die.
+We killed a fang of Yeenoghu (with the gnolls back at the temple). The gnolls worship a very evil God, Yeenoghu, who likes killing things... this is why all the gnolls had to die. They tried to make nice, tried talking to them, they really did. They didn't listen. So they had to die.
 
 The tablets circle around a soft of iris and the beams of light would open a hole in the floor. We replace the missing piece to find a man dressed in white lying on the ground.
 
