@@ -1,5 +1,3 @@
-November 19th, 2015
-
 September 10h
 
 We want to explore the most easily accessible ones. We go into the second one, because Jim found chuuls in the first. We see life sized reliefs, but instead of going in, they curve outward. The pictures depict smiling dragons. Praetus and I start laughing uncontrollably for a moment. That was weird. Praetus pulls out his light sword, and we see a narrowing tunnel. 
