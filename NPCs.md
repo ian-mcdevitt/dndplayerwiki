@@ -44,5 +44,6 @@
 * Stephalee
  
  ## Titanrock NPCs
+ * [[Vincent ???]]
  
  ## River's Maw NPCs
