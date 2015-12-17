@@ -23,8 +23,6 @@ He says he has a “bald man's” memories. We give him a mirror. He says “I a
 “Who are you?”
 “...I don't know.”
 
-hodor
-
 We decide that we'll chill for three days, as opposed to going to the temple to explore, and wait for the werewolf attacks to come again.
 
 Every attack could have been perpetrated by a druid... Praetus finds that out after his sermon from townspeople. Oz trains the guardsmen to be better fighters. I fish and bond with Keyleth.
@@ -35,6 +33,6 @@ Oz says, “I dodged lightning. Twice.”
 
 Praetus and I go outside to investigate. I detect a faint aura of magic, but that's it. We go home safely.
 
-Morning of September 13th 
+Morning of September 14th 
 
 We check in at the Daybrooke farm. Rodrick made friends with one of the animals and seems likes an entirely different person. Oz gives ToughBottom words of wisdom... because that's relevant. Come nightfall, Oz is training the guards, Praetus is asleep at the farm, and I'm watching the sheep, waiting for the werewolf. During the watch, one of the sheep just fall down. After a minute, another one does. I wake them up, detect magic (nothing) and continue to watch. Nothing else happens into the morning.
