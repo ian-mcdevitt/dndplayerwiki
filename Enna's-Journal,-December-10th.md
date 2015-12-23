@@ -33,6 +33,6 @@ Oz says, “I dodged lightning. Twice.”
 
 Praetus and I go outside to investigate. I detect a faint aura of magic, but that's it. We go home safely.
 
-Morning of September 14th 
+Morning of September 13th 
 
 We check in at the Daybrooke farm. Rodrick made friends with one of the animals and seems likes an entirely different person. Oz gives ToughBottom words of wisdom... because that's relevant. Come nightfall, Oz is training the guards, Praetus is asleep at the farm, and I'm watching the sheep, waiting for the werewolf. During the watch, one of the sheep just fall down. After a minute, another one does. I wake them up, detect magic (nothing) and continue to watch. Nothing else happens into the morning.
