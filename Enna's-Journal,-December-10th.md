@@ -11,7 +11,7 @@ Enna approaches the Spiderbash residence, and upon seeing Lana, they rejoice. I 
 
 Oz tried to break into the tavern... for whatever reason. Oz encounters a family that is leaving town, exclaiming how they don't want to be in a town that is being targeted by dragons and bears. They say they're heading to Titanrock, despite Oz telling them that a dragon attacked Titanrock as well.
 
-We find, talking to the towns people who witnessed the bear attacks, that a thunderstorm happened at the same time, but everyone shrugs it off as insignificant. The Amadeus (the hunter that came with us) says he encountered nothing strange on the way back.
+We find, talking to the towns people who witnessed the bear attacks, that a thunderstorm happened at the same time, but everyone shrugs it off as insignificant. Amadeus (the hunter that came with us) says he encountered nothing strange on the way back.
 
 Oz goes to Hakour's home, who is hungover like the rest of the people we encountered. I notice as we leave that Hakour drops his hungover persona. Lying bastard. We pass another family heading toward Rivermaw. We try to persuade them to stay, because we can't protect them there. The man (Pontius Fynash) says he can't support his family on trench digging wages. I propose that if I can get John Farguard to pay him more to join the guard (he owes us a favor) he should stay and protect his family. He gives us until tomorrow.
 
