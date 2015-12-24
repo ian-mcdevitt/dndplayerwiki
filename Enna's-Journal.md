@@ -8,3 +8,4 @@
 [[November 12th|Enna's Journal, November 12th]]
 [[November 19th|Enna's Journal, November 19th]]
 [[December 10th|Enna's Journal, December 10th]]
+[[December 23rd|Enna's Journal, December 23rd]]
