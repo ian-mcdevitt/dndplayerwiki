@@ -1,5 +1,3 @@
-December 23rd, 2015
-
 Morning of September 14th
 
 I tell Praetus about the sheep falling over. He says that is not normal sheep behavior... but I didn't notice anything else that night...
