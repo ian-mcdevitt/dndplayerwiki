@@ -1,9 +1,9 @@
 September 10th (afternoon)
 
 Oz had a crown! Which lets him have deformed dragon baby spirit things! Yay?
-* Hudraer
-* Razeth
-* Ohen (the special one)
+* Hudraer - the jawless
+* Razeth - the one with five legs
+* Ohen - the special one
 
 Keyleth, Vincent, and Lana are with us. Oz rummages through Jim's office. I deliver Lana back to the Spiderbashes. Praetus wants to take Vincent to the temple. There seems to be a quiet murmur in the town. As Praetus approaches the temple, there are a bunch of bear corpses (remnants from a party in the town). He is told that 12 some bears attacked the town, and the guards fended half of them off, and they killed the other half. Luke, the refugee guard, explains he just fended them off. 
 
