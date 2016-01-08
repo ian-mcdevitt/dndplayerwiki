@@ -1,5 +1,3 @@
-January 7th, 2016
-
 Very early morning of September 14th, 3am
 
 We are in the temple with Shae with many now homeless townsfolk. Shae says she will keep an eye on the eight survivors.
