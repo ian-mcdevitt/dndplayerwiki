@@ -29,15 +29,15 @@ Keyleth still following Hakour. Hakour comes upon a clearing, mumbles something 
 
 Oz asks Arauthator to speak dead with the treant. Telsa is present as well. Oz, Praetus and I brainstorm what we want to ask the treant. The conversation goes:
 
-	Who summoned you?
+* Who summoned you?
 	Hakour.
-	What were your instructions?
+* What were your instructions?
 	Chaos.
-	Why were you instructed to do this?
+* Why were you instructed to do this?
 	To run the villagers out of town.
-	What forces has he gathered?
+* What forces has he gathered?
 	I do not know.
-	Why did he want to run people out of town?
+* Why did he want to run people out of town?
 	I don't know.
 
 Telsa is distraught. Arauthator is in disbelief. Yay we have witnesses! I send to Keyleth telling he to be careful, Hakour is responsible, make sure he comes back to town. Keyleth responds: kk, coming back to town, still following, ETA 2hr, keyleth out.
