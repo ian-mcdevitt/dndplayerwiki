@@ -21,7 +21,7 @@ Firemaws – faint around their home
 
 In the town center, a giant eagle lands with a scroll (from Tefydarian, the bronze dragon) stating we might have use for the following contents and as a thank you from freeing his mind from the crown, with money and additional scrolls. The three scrolls consist of the stories of: Jyostna, Kaldaka, and Chaundra, once Oz comprehends languages on it. Oz receives a lance that is whispering to him... oh no.
 
-	Jyostna bought power to Zari, the moon spirit. Zari had a Chosen One named Chaundra who 	was powerful and good, and then when Zari fell in the Great War, she became the first lyncan 	and caused much destruction. Then Kaldaka was the redeemer, and resurrected Zari and was the 	last lycan.
+Jyostna bought power to Zari, the moon spirit. Zari had a Chosen One named Chaundra who	was powerful and good, and then when Zari fell in the Great War, she became the first lycan	and caused much destruction. Then Kaldaka was the redeemer, and resurrected Zari and was the last lycan.
 
 Telsa randomly says that once a bear came up to Hakour after being provoked and bit off his finger... but he's not missing any fingers... huh.
 
