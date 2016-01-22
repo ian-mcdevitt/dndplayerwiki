@@ -1,4 +1,4 @@
-***Hakour was behind all of it, to run everyone out of Evenbrook
+SOLVED: Hakour
 
 When Enna goes to explore the town, she comes across a family of dwarves with a very overgrown garden. The weeds and overgrowth is strangling the families edible plants, and every day, the overgrowth gets worse.
 
