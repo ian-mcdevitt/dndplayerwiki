@@ -10,3 +10,4 @@
 [[December 10th|Enna's Journal, December 10th]]
 [[December 23rd|Enna's Journal, December 23rd]]
 [[January 7th|| Enna's Journal, January 7th]]
+[[January 21st|| Enna's Journal, January 21st]]
