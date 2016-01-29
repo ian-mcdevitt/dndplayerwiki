@@ -19,6 +19,7 @@
 * [[Downwhisper|Families: Downwhisper]]
 * [[Snowlight|Families: Snowlight]]
 * [[Spiderbash|Families: Spiderbash]]
+* [[Wheatmark|Families: Wheatmark]]
 
 ### Refugees:
 * Guards:
