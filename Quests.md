@@ -4,3 +4,4 @@
 [[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]] - SOLVED
 [[The New Caravan]]
 [[The Crazed Bronze Dragon]]
+[[Hakour and Parinath]]
