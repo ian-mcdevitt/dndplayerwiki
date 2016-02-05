@@ -19,3 +19,6 @@ Enna and Praetus go to investigate Duncan Commonshield about the Daybrook werewo
 ***********************************************************************************
 
 We found on the night of the copper dragon attack that other things have happened to the town consistent with druid activity, even before we got here. One of the town's halflings expresses that beasts tend to attack the town, for no reason. Giant elk, bears, and now a dragon. There were crop failures due to locusts. There was a flood. And there was also a plague. One of the Firemaw sisters went crazy when she got sick from the plague and killed her brother and herself. A geas can explain these events, which further points us to druid activity.
+
+SOLVED
+It's Hakour. It's all been Hakour.
