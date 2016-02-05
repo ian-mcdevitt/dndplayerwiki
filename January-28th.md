@@ -8,6 +8,4 @@ We wake up Hakour. He is wild and fearful; we think he was controlled by the dra
 
 We fool around with ideas about how Hajour was controlled, but come to no conclusion. Detect magic also doesn't reveal anything odd about Hakour. I send to Tefydarian, asking him if he knows about another insane dragon. He does not know of Parinath, but does know that chromatic dragons have lashed out in recent years. We ask to meet with him, and he agrees, but says he will not be taken advantage of.
 
-We reach the town, and head for the temple, Telsa in tow. We fill the members of the temple in, and ask if anything else happened 20 years ago coinciding with Parinath going insane. Telsa was the only one here 20 years ago, and she just came over then. We find that the Bronzeleaves were the ones that founded Evenbrook, Varik (the father). We also discover that no one in the town is between the ages of 15-25 years old... so no one was traveling into the town with children at that point in time...
-
-Weird.
+We reach the town, and head for the temple, Telsa in tow. We fill the members of the temple in, and ask if anything else happened 20 years ago coinciding with Parinath going insane. Telsa was the only one here 20 years ago, and she just came over then. We find that the Bronzeleaves were the ones that founded Evenbrook, Varik (the father).
