@@ -1,6 +1,6 @@
 Night of September 14th
 
-As soon as we start getting comfortable and ready to go to sleep, Adrian knocks on our door. He quadrupled Oz's money. On the way there, they heard tell of a dragon (of an undisclosed color) but did not encounter one. The people of Titanrock were kinda resistant to trade at first, kinda insulted, but Adrian did sell all the their wares, and bought others.
+As soon as we start getting comfortable and ready to go to sleep, Adrian knocks on our door, having returned from his caravan trip to Titan rock to stimulate trade amongst the towns. He quadrupled Oz's money. On the way there, they heard tell of a dragon (of an undisclosed color) but did not encounter one. The people of Titanrock were kinda resistant to trade at first, kinda insulted, but Adrian did sell all the their wares, and bought others.
 
 Titanrocks blacksmith is sub-par, but they have awesome silver smiths, and all the jewelry they brought back with them immediately sold out in Evenbrook.  Overall it was good. 
 
