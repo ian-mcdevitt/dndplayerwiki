@@ -1,6 +1,6 @@
 PENDING - [[The Gnoll Temple]]
 PENDING - [[Kalt Peter and the Spirits]]
-SOLVED? - [[Daybrook Werewolf Attacks]]
+SOLVED - [[Daybrook Werewolf Attacks]]
 SOLVED - [[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]]
 SOLVED - [[The Crazed Bronze Dragon]]
 PENDING - [[Hakour and Parinath]]
