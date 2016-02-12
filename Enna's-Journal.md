@@ -12,4 +12,5 @@
 [[January 7th|| Enna's Journal, January 7th]]
 [[January 21st|| Enna's Journal, January 21st]]
 [[January 28th|| Enna's Journal, January 28th]]
-[[February 4th|| Ennaa's Journal, February 4th]]
+[[February 4th|| Enna's Journal, February 4th]]
+[[February 11th|| Enna's Journal, February 11th]]
