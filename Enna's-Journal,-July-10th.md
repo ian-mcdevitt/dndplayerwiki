@@ -1,5 +1,7 @@
 *8 years since the Valerian War*
 
+August 16th
+
 Acheuadi sent me a vision of the new continent, but needed a way to get there.
 Oz was imprisoned on a ship traveling to a new area for arena fighting, along with 20 others. And Praetus wanted to liberate the slaves. This is where we met and we three commandeered the ship.
 
