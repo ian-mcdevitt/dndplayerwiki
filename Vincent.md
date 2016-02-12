@@ -1,0 +1,1 @@
+Malnourished human man we found in the caves north of Evanbrook. Was kidnapped by the dragon Tefydarian and taken as prisoner in the same manner as Lana Spiderbash.
