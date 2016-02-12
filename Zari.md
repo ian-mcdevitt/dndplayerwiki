@@ -1,4 +1,4 @@
-*Spirit of the Moon*
+*Spirit of the Deepest Darkest Places*
 
 Zari is, literally, a giant pill bug, that is one of Zaralight's two moons.
 
