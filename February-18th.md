@@ -1,3 +1,13 @@
+September 16th
+
+4:40PM
+
+I sleep with Thor on Zari Day. I regret nothing.
+Oz gets back on stage drunkenly and says he should be mayor and everyone should vote for him.
+Praetus flirts with Telsa and sleeps with her. Omg Zari Day is the best. Happy Zari Day.
+
+We go to bed happy.
+
 Morning of September 17th 
 
 Oh God, what happened last night?
