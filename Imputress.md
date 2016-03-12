@@ -1,0 +1,1 @@
+A naga that we met in the first cave of The World Tree caves. He was protecting a trove of spells, which he destroyed before we could get to it. He said the caves are filled with many dangerous creatures and that he knows the caves well.
