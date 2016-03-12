@@ -46,6 +46,9 @@
 
 ## Creatures
 * [[Tefydarian]]
+* [[Parinath]]
+* [[Imputress]]
+ 
  
  ## Titanrock NPCs
  
