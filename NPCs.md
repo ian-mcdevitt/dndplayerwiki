@@ -1,5 +1,7 @@
 [[Kalt Peter]]
 
+[[Jim Eugene Darkmagic III]]
+
 ### Clergy:
 * [[Arauthator]]
 * [[Thor]]
