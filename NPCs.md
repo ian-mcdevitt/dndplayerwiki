@@ -45,7 +45,7 @@
 * Stephalee
 
 ## Creatures
-* Tefydarian
+* [[Tefydarian]]
  
  ## Titanrock NPCs
  
