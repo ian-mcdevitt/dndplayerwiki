@@ -1,6 +1,6 @@
 [[Kalt Peter]]
 
-[[Jim Eugene Darkmagic III]]
+[[James Eugene Darkmagic III|Jim]]
 
 ### Clergy:
 * [[Arauthator]]
