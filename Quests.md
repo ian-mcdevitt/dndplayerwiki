@@ -5,4 +5,6 @@ SOLVED - [[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]]
 SOLVED - [[The Crazed Bronze Dragon]]
 PENDING - [[Hakour and Parinath]]
 
+PENDING - [[The World Tree Caves]]
+
 PENDING - [[The New Caravan]]
