@@ -43,6 +43,9 @@
 * Barbara
 * Yolanda
 * Stephalee
+
+## Creatures
+* Tefydarian
  
  ## Titanrock NPCs
  
