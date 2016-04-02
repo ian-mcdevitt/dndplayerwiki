@@ -1,0 +1,1 @@
+Is a combat medic for the Evenbrook city guard.
