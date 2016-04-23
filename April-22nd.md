@@ -1,0 +1,25 @@
+Afternoon of September 26th
+
+There is a sparkling beautiful shiny elven woman made of mirrors in front of me. Holy shit, she is the most beautiful thing I have ever seen. Except, not. It looks like something if off with her, but then I think maybe she is far more perfect than I can ever be. KP looks worried, standing behind her. I ask her what this place is. She responds it is it the source of her greatest shame, a prison for someone that didn't deserve it, but she was left with no choice. That person was a product of her design, put into a mortal body. This temple was the place for 100+ spirits. Acheuadi turns to see Oz and KP. KP and her lock eyes and freeze. 
+
+Kalt Peter's real name is Ushay Touadi. Kalt Peter is the mortal body he is in. Ushay is the spirit of the great dimensional barrier, the product of 100+ spirits, but mostly her. He was both the shield and the sword. Kalt Peter brought about the end of the world as we knew it, 440 years ago, destroyed Ushay and the barrier between this world and others. Kalt Peter destroyed the world once, and Acheuadi will not let it happen again. We realize that we don't how much of KP or Ushay is in this... person. Is he dangerous? 
+
+Acheuadi and KP step toward one another, and appear to be communicating telepathically. Oz casts detect thoughts. Oz eats it, for invading their privacy. She then puts her hand on his forehead. Slowly, KP shifts, his image falls, and he starts to look like her. He speaks aloud for the first time, raspy. Acheuadi says given a choice, she will make him into what he once was. Ushay says his only purpose is to protect this world. He sounds resigned. Oz and Praetus insist that there is no need for him to protect the world, and that the world has been just fine without them. Acheuadi scolds Praetus for being the most diluted, using the power of God, saying that Gods are the reason for the evil which they claim to protect people from. 
+
+We recall the Saga of King Morteus.
+
+Many spirits were destroyed at the hands of KP and his ilk. Spirits can't be destroyed outright, but they do lose power when they go down. Acheuadi explains about the interlopers, KP and his ilk, did a lot of divide the Spirits during the fight between and the Gods and the Spirits. Therionax was the spirit of civilization, who was utterly destroyed, but Acheuadi says the only way mortals clawed back after Nialism is because he must be coming back to power. Acheuadi says she will resume where she left off, ignoring mortals and expanding her domain. Ushay feels like everything deserves protection, kinda counter to how Acheuadi feels. 
+
+Acheuadi disburses, the conversation kinda coming to a natural conclusion. 
+
+Acheuadi is a lot colder than I thought when it comes to mortal affairs. But I get it. She doesn't need to, and she doesn't care to. I get that. She's the powerful being, and her spirit concept doesn't really affect mortals. Outloud, to the others, I defend her. To myself, now that I'm starting to get my nose out of books and have developed relationships with Praetus, Oz, KP and Evenbrook, I'm starting to doubt my somewhat blind devotion to her. Our views are becoming more different because of how I am changing as a person.
+
+Ushay, seeing Acheuadi leave, states outloud that he doesn't know what to do now. At suggesting he hep us clear out the mind flayers in the temple, he says that his not his place to remove them, as they are reflections of this plane. He separates us from everything else. Praetus mentions something about a gate in passing, and Ushay questions it. I mention “The Living Gate” and Utureshk. He says The Living Gate is the only thing that remains to protect us from Utureshk. It's her prison, says Ushay. 
+
+Ushay says it's time to go their separate ways; him to find the Living Gate, and us to protect the people of Evenbrook. After our goodbyes, he disappears, growing larger to the point where we can no longer perceive him. Weird. 
+
+We agree to clear out the temple, since there are mind flayers in here, and it is close to the town, posing a threat to the people of Evenbrooke and the gnolls. We go up the rope back into the iris room. We go down dow down, past the dark flumph and other rooms we found, toward the maze. Just outside the maze, there is a plaque (same as the last time) stating the name of the place, Unterholm. We go under the maze, hugging the right wall. We find an exit, that leads into a carved tunnel, and then into a dwarven construction area, with two diverging tunnels. The room as a torn tapestry. We go down the clean cut right one. We hear grinding noises as we walk, and feel thrown off balance. We find a room with multiple stone statues of dwarves, but the noses are too big and the ears are too batlike. They are duergar, deep dwarves. Oz finds scratch marks at the joints of the statues, suggesting movement. Praetus takes a hammer from one of them and smashes it against the ground and the haft shatters. We hear the grinding movement of stone as the statues animate.
+
+FIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIGHT
+
+Evard's Black Tentacles real MVP. Praetus eats no shit.
