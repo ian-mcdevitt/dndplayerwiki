@@ -1,6 +1,3 @@
-New cleric of Lathander (thanks to Praetus)
-Repented for beating animals
-
 After confessing for taking his anger out on animals and repenting, Adrian was reborn as a Dawnbringer of Lathander. 
 
 **Cleric 1**
