@@ -3,3 +3,4 @@
 [[World]]
 [[Quests]]
 [[Enna's Journal]]
+[[Arygos' Letters]]
