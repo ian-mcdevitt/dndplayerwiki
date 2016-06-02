@@ -32,13 +32,11 @@ Oz asks Arauthator to speak dead with the treant. Telsa is present as well. Oz, 
 * Who summoned you?
 	Hakour.
 * What were your instructions?
-	Chaos.
+	To destroy buildings.
 * Why were you instructed to do this?
-	To run the villagers out of town.
+	I do not know.
 * What forces has he gathered?
 	I do not know.
-* Why did he want to run people out of town?
-	I don't know.
 
 Telsa is distraught. Arauthator is in disbelief. Yay we have witnesses! I send to Keyleth telling he to be careful, Hakour is responsible, make sure he comes back to town. Keyleth responds: kk, coming back to town, still following, ETA 2hr, keyleth out.
 
