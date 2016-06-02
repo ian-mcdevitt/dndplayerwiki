@@ -27,18 +27,20 @@ Telsa randomly says that once a bear came up to Hakour after being provoked and 
 
 Keyleth still following Hakour. Hakour comes upon a clearing, mumbles something she can't understand, and five dryads appear from the forest. She shouts at them, they appear scared, including the one that looks like a leader. She turns on his heels and storms away. Keyleth alters herself and remains unseen. Keyleth continues to follow him, keeping in mind one specific phrase the dryads said, saying it over and over again in her head.
 
-Oz asks Arauthator to speak dead with the treant. Oz, Praetus and I brainstorm what we want to ask the treant. The conversation goes:
+Oz asks Arauthator to speak dead with the treant. Telsa is also there. Oz, Praetus and I brainstorm what we want to ask the treant. The conversation goes:
 
 * Who summoned you?
 	Hakour.
 * What were your instructions?
-	To destroy buildings.
+	Chaos.
 * Why were you instructed to do this?
 	I do not know.
 * What forces has he gathered?
 	I do not know.
+* Why did he want to run people out of town?
+	I don't know.
 
-Arauthator is in disbelief. Yay we have witnesses! I send to Keyleth telling he to be careful, Hakour is responsible, make sure he comes back to town. Keyleth responds: kk, coming back to town, still following, ETA 2hr, keyleth out. Arauthator shares what he learned with Telsa, Shae, and Thor.
+Telsa is distraught. Arauthator is in disbelief. Yay we have witnesses! I send to Keyleth telling he to be careful, Hakour is responsible, make sure he comes back to town. Keyleth responds: kk, coming back to town, still following, ETA 2hr, keyleth out.
 
 I enlist a very distraught Telsa to coordinate efforts to rebuild the homes. Praetus is rallying the clergy. Thor is gearing up (love this man – we can make this work despite intense racism), Shae is emotionally preparing herself. Oz is identifying his lance. It is a Spear of Heaven, a symbol appears on it. The lance communicates emotions to him, and shows up what I saw earlier. The man/werewolf and the pill bug. That vision is the scroll story. Additionally shows him many werewolves from around the world turning back into men.
 
