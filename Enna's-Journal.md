@@ -27,3 +27,4 @@
 [[May 5th|| Enna's Journal, May 5th]]
 [[May 26th|| Enna's Journal, May 26th]]
 [[June 10th|| Enna's Journal, June 10th]]
+[[June 16th|| Enna's Journal, June 16th]]
