@@ -46,4 +46,4 @@ We make it up through the rest of the hallway and up to the flumphs. Sleep on th
 
 Morning of October 2nd
 
-We fly on Oz as a giant eagle out of the temple and directly into town, landing on the temple.
+We wake up in the flumph chamber, ready to head out. We should make it home by the end of today.
