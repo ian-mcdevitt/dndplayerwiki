@@ -1,5 +1,5 @@
 PENDING - [[The Gnoll Temple]]
-PENDING - [[Kalt Peter and the Spirits]]
+SOLVED - [[Kalt Peter and the Spirits]]
 SOLVED - [[Daybrook Werewolf Attacks]]
 SOLVED - [[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]]
 SOLVED - [[The Crazed Bronze Dragon]]
@@ -7,4 +7,4 @@ PENDING - [[Hakour and Parinath]]
 
 PENDING - [[The World Tree Caves]]
 
-PENDING - [[The New Caravan]]
+SUCCESS - [[The New Caravan]]
