@@ -6,7 +6,9 @@ The next morning, we make the town's people aware during the clergy's surmons, a
 
 I sent to Tefydarian if he knows anything about the crazed dragon Parinath, and he confesses that he does not know of Parinath, but does know that in recent years, there has been an insanity associated with the chromatic dragons. We ask to see him to talk about this more, and he begrudgingly agrees.
 
-We found out through some investigatin' that Hakour thought he was hearing "the voice of nature" and that was controlling his actions. 
+We found out through some investigatin' that Hakour thought he was hearing "the voice of nature" and that was controlling his actions. We also met an elf in the Fey Wild that acted similarly to Hakour, claiming that the voice of Nature told him to kill us. 
+
+Also, probably related, there was a portal to the Fey Wild behind a very dead Elder Brain...
 
 While we were dealing with the mindflayer threat deep under the temple in the swamp, Hakour scried for us and presumed that we were up to no good. He notified the town and told them to evacuate as he thought we were coming back with an army to attack Evenbrook.
 
