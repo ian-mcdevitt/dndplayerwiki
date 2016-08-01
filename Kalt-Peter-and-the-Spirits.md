@@ -22,3 +22,11 @@ Acheuadi talks to Enna for the first time concerning Kalt Peter the same day:
 *“He who calls himself Kalt Peter – he was known by another name: The White Scourge – was one of the interlopers. He, Acruum Investi, and Maggot; the Three Dreaded Ones. It was only halfway through the war their influence was known.”*
 
 Kalt Peter also rages at the names of the Spirits, further enforcing that something between Peter and the Spirits is amiss.
+
+-----------------------------------------------------------------------------------
+
+We eventually come to find that Acheaudi is Kalt Peter's mother, and that he is a spirit called Ushay Touadi. Ushay is the spirit of the great dimensional barrier, the product of 100+ spirits. He was both the shield and the sword. Kalt Peter brought about the end of the world as we knew it, 440 years ago, destroyed Ushay and the barrier between this world and others. 
+
+Ushay feels like everything deserves protection, and that protecting others is his only purpose, so Acheaudi makes him to once he once was.
+
+Ushay becomes Enna's new patron, since her views on the world anf people have diverged with Acheaudi's since arriving to Evenbrook, and says he will help protect the town.
