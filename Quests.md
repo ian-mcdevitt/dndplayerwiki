@@ -1,4 +1,4 @@
-SOLVED - [[The Gnoll Temple]]
+SOLVED - [[The Gnoll Temple/Duergar City/Mindflayer Threat]]
 SOLVED - [[Kalt Peter and the Spirits]]
 SOLVED - [[Daybrook Werewolf Attacks]]
 SOLVED - [[Bronzeleaf Garden/The Burning Bridge/Weasel Druid]]
