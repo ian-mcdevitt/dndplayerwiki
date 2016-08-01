@@ -8,4 +8,6 @@ The caravan returns to the town on the night of September 14th. Adrian reports t
 
 Titanrocks blacksmith is sub-par, but they have awesome silver smiths, and all the jewelry they brought back with them immediately sold out in Evenbrook.  Overall it was good. 
 
+The caravan also made a successful and profitable second trip. 
+
 We plan on expanding trading relations with Titanrock before pursuing Riversmaw.
