@@ -1,1 +1,1 @@
-The green dragon raised by [[Hakour]]. Hakour said that at one point during parinath's raising, the dragon snapped and went insane. Parinath tried to get Hakour to run the people of Evenbrook out of town by bringing dangerous creatures to attack the town.
+The green dragon raised by [[Hakour]] . Hakour said that at one point during parinath's raising, the dragon snapped and went insane. Parinath tried to get Hakour to run the people of Evenbrook out of town by bringing dangerous creatures to attack the town.
