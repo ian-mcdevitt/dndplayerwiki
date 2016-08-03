@@ -1,7 +1,7 @@
 **Name:** Enna Holimion (Diamond Dew)
 **Race:** Wood Elf 
 **Class:** Warlock (Great Old One)
-**Patron:** Acheuadi - The Spirit of sunset on the water
+**Patron:** -Acheuadi - The Spirit of sunset on the water-
 **Physical Traits:** 
 * Age: 107
 * Height: 5'6''
