@@ -55,6 +55,7 @@
  
  
  ## Titanrock NPCs
+ * [[Keyleth Amastacia]]
  
  ## River's Maw NPCs
  * [[Vincent]]
