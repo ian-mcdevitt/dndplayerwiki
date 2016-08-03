@@ -2,7 +2,7 @@
 **Race:** Wood Elf 
 **Class:** Warlock (Great Old One)
 **Patron:** Ushay Touadi - the World's Shield, gatekeeper of zarilight, spirit of protection from those without
-	Formerly: Acheuadi - The Spirit of sunset on the water
+_Formerly: Acheuadi - The Spirit of sunset on the water_
 **Physical Traits:** 
 * Age: 107
 * Height: 5'6''
