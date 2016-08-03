@@ -1,1 +1,1 @@
-Wife of Citrine Moltencore, the deceased
+Wife of [[Citrine Moltencore]], the deceased
