@@ -1,2 +1,2 @@
 Teifling family
-Neighbors to the Firemaws
+Neighbors to the [[Firemaw]] family
