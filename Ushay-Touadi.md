@@ -1,4 +1,4 @@
-Ushay is the spirit of the great dimensional barrier. He is both the shield and the sword. 
+Ushay Touadi, the World's Shield, gatekeeper of zarilight, spirit of protection from those without.
 
 He is the product of 100+ spirits, but mostly Acheaudi. Kalt Peter brought about the end of the world as we knew it, 440 years ago, destroyed Ushay and the barrier between this world and others.
 
