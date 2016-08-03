@@ -1,7 +1,8 @@
 **Name:** Enna Holimion (Diamond Dew)
 **Race:** Wood Elf 
 **Class:** Warlock (Great Old One)
-**Patron:** ~Acheuadi - The Spirit of sunset on the water~
+**Patron:** Ushay Touadi - the World's Shield, gatekeeper of zarilight, spirit of protection from those without
+	Formerly: Acheuadi - The Spirit of sunset on the water
 **Physical Traits:** 
 * Age: 107
 * Height: 5'6''
@@ -21,4 +22,6 @@
 
 Wandering Archelia as a Sage, I have learned of a great War between the Gods and the Spirits. I know little of it, but I do know that the Gods won, and I want to know the cause and the reprecussions of it all. I have come across Tephra and Elend in these travels, two of the five Enforcers, who used the Utopian Engines to stop the Valerian War.The Utopian engines were pieces of Kiedre, who was a half spirit. This has been my first concrete proof of the Spirits being the cause of something so great.
 
-**Goal:** It is my goal to be the cause of Acheuadi's resurgance into the world. I want people to believe in the Spirits again, to recognize them as something equivalent to the Gods. The spirits may not provide tangible connections and instant gratification, because they work in mysterious ways. It's hard believing in something that no one else believe in, to be criticized and to be called crazy. *I'm* not even sure she's there for me 100% of the time, but I do know that when she is there, it's the most beautiful thing. I want that for other people as well.
+After meeting Acheadui, in the flesh (as much as you can a Spirit, I found that I had changed incredibly as a person, and that I am caring for people who I don't even know very well. I learning to protect people as a whole, which is something Acheaudi cannot relate to. Realizing my change, I have gone to Ushay Touadi, the protector, after finding himself and his purpose again, and now he is my patron.
+
+**Goal:** My former goal was to be the cause of Acheuadi's resurgance into the world. I want people to believe in the Spirits again, to recognize them as something equivalent to the Gods. The spirits may not provide tangible connections and instant gratification, because they work in mysterious ways. It's hard believing in something that no one else believe in, to be criticized and to be called crazy. Now that I have found Ushay, I do not want this any less, but I will do this while also helping those around me who need it, with someone that shares my purpose, and that is Ushay.
