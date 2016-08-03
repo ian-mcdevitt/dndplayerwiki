@@ -38,7 +38,13 @@ Praetus is going to get platemail made by Lawrence Commonshield, who is doing ve
 
 We turn in for the night.
 
-I have a crazy dream about being a bubble, being outside the bubble, and simultaneously inside the bubble. I wake up in a cold sweat and realize that Ushay is now my patron and that my tie with Acheaudi is severed. I feel so much better knowing the my patron shares my cause. 
+I have a dream that night:
+
+_The dream begins suddenly and without explanation. You are floating through darkness, and naked. One by one at first, then in tens, then by the hundred -- thousand -- million -- stars wink into existence. You are hovering weightlessly, naked. You feel self-conscious, as if the stars are a million billion eyes, staring at your nudity. Slowly, methodically, a being you recognize as Ushay, but infinitely, unfathomably large, drapes you in a white cloth. It takes the form of a sphere as it wraps around you, simultaneously white and opaque, but also impossibly transparent. You feel protected, but no less naked. He regards you warmly, smiling only slightly. The way he looks you over, you can tell he is nothing if not protective. From inside the bubble, you see the surface of the world, imprinted on the bubble; you are either the world, or inside the world, but either way, it is clear that Ushay regards you as equal in importance. "Wake, child. Feel the embrace of Ushay Touadi, the World's Shield, gatekeeper of zarilight, spirit of protection from those without."
+
+_You wake up calmly, feeling safer than you've ever felt in your life.
+
+Ushay Touadi is now my patron.
 
 Morning of October 4th
 
