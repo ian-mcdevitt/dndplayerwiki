@@ -1,3 +1,3 @@
-Father of Duncan and Tristan Commonshield
+Father of [[Duncan Commonshield]] and [[Tristan Commonshield]]
 The town blacksmith
-Employeer of Rodrick Firemaw
+Employeer of [[Rodrick Firemaw]]
