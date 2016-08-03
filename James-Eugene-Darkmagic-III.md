@@ -2,7 +2,7 @@ The elusive Jim...
 
 He is approximately 40 years old, from what we can tell, human, pale, with slicked back black hair. He prefers to wear black on most occasions. He's also a very powerful wizard.
 
-It is known that he knows Evenbrook relatively well, but he keeps himself secluded from the rest of the town. He loves to learn and explore and has quite the library. He employs two scribes: Thomas and Pietro. 
+It is known that he knows Evenbrook relatively well, but he keeps himself secluded from the rest of the town. He loves to learn and explore and has quite the library. He employs two scribes: Thomas and [[Pietro Daybrooke]].
 
 He is pretty dependable, for the most part, and we think has developed a love/hate relationship with the three of us. He is knowledgable and powerful. He has also recently discovered a huge cavernous system up north, that resembles a tree with its long winding tunnels. He is meticulously making steps to each cave entrance spiralling all the way down the "trunk" of the tree.
 
