@@ -1,4 +1,4 @@
-Tefydarian is a bronze dragon, that in a mad stupor kidnapped [[Lana Spiderbash]] from Evenbrook, [[Vincent]] from Riversmaw, and Keyleth from Titanrock.
+Tefydarian is a bronze dragon, that in a mad stupor kidnapped [[Lana Spiderbash]] from Evenbrook, [[Vincent]] from Riversmaw, and [[Keyleth Amastacia]] from Titanrock.
 
 Upon entering his lair in the World Tree Caves, we found he was under some magic that caused him to go insane, believing his 3 babies were alive and well. The crown, we found, contains the souls of these three deformed wyrmlings.
 
