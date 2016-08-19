@@ -1,5 +1,3 @@
-August 18th, 2016
-
 Evening of October 6th
 
 The compass is a compass that points to where we want to go. Useful? We're still near the top of the tree. We go out the room and down the ramp to the doorway we passed halfway up. The room is entirely covered in webs. There are torches on the walls, lit, but the web is not igniting. Nothing on the ceilings this time. The web kind of acts a trampoline, springy, but not slimy (except the walls) or sticky.  After slicing some of the web, a wooden floor lies underneath, and the wall can be seen past the webs if you're really looking. There is another door on the opposite side of the room. Magical fire appears to get through it, but not normal fire or a blade. Through the door we go. 
