@@ -35,3 +35,4 @@
 [[July 29th|| Enna's Journal, July 29th]]
 [[August 3rd|| Enna's Journal, August 3rd]]
 [[August 18th|| Enna's Journal, August 18th]]
+[[August 25th|| Enna's Journal, August 25th]]
